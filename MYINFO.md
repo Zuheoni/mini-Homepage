@@ -2,3 +2,6 @@
 ____
 >Hobby
 - Playing Bass & Riding a Bike.
+
+>MBTI
+- INFJ

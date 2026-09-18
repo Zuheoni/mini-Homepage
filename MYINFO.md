@@ -1,7 +1,7 @@
 # My Information
 ____
 >Hobby
-- Playing Bass & Riding a Bike.
+- Playing Bass
 
 >MBTI
 - INFJ
